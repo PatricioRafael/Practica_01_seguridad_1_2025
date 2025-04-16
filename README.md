@@ -1,1 +1,0 @@
-# Practica_01_seguridad_1_2025
